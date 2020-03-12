@@ -1,0 +1,1 @@
+# Rachunek-r-niczkowy-i-ca-kowy-eTrapez
